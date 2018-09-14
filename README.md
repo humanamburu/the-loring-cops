@@ -9,4 +9,5 @@ The same rules but for the :star: RS :star:
 
 Come up with an unusual and consonant with "The Rolling Scopes" and submit your version
 
-Beneneding Cumberbeups.
+Beneneding Cumberbeups,
+Beneding Cumberscopes
