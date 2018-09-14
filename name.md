@@ -1,1 +1,3 @@
-The Rolling Scopes - dash s.o.'s hopes
+The Rolling Scopes,
+The Loring Cops,
+Dash S.O.'S Hopes
