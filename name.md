@@ -1,2 +1,3 @@
 The Rolling Scopes,
-The Loring Cops
+
+Not boring loops
