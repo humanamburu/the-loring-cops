@@ -1,6 +1,6 @@
 # the-loring-cops
 
-Do you know the "What is his name?" game?
+Do you know the "What's his name?" game?
 
 ![Bebebinkt Cembercatch](https://images.indianexpress.com/2015/09/benedict-cumberbatch-759.jpg)
 
