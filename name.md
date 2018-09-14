@@ -1,7 +1,9 @@
 The Rolling Scopes,
-The Loring Cops,
-The Trolling Box
 The Loring Cops
+The Trolling Box
+Dash S.O.'S Hopes
 The Lolly Bombs
 The Scrolling Lols
+The Rolls Soyce
 The Growing Stores
+The Thrilling Stops
