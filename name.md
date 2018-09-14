@@ -1,5 +1,6 @@
 The Rolling Scopes,
 The Loring Cops,
+The Pooping Dogs
 Dash S.O.'S Hopes
 The Loring Cops
 The Lolly Bombs
