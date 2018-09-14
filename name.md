@@ -1,1 +1,3 @@
-the-shrinking-swaps
+The Shrinking Swaps,
+The Rolling Scopes,
+The Loring Cops
