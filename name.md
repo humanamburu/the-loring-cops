@@ -1,3 +1,7 @@
+
+The Rolling Scopes,
+The Loring Cops,
+The Holy Cows,
 The Rolling Scopes
 The Pooping Dogs
 Dash S.O.'S Hopes
@@ -8,3 +12,4 @@ The Rolls Soyce
 The Growing Stores
 The Lagging Codes
 The Thrilling Stops
+
