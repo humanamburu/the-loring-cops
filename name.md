@@ -1,3 +1,6 @@
 The Rolling Scopes,
 The Loring Cops
-The Smoking Mops 
+The Lolly Bombs
+The Scrolling Lols
+The Growing Stores
+The Smoking Mops
