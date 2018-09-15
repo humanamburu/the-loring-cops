@@ -1,5 +1,6 @@
 The Rolling Scopes,
 The Loring Cops,
+<<<<<<< HEAD
 The Pooping Dogs,
 Dash S.O.'S Hopes,
 The Loring Cops,
@@ -9,3 +10,6 @@ The Rolls Soyce The Growing Stores,
 The Lagging Codes, 
 The Thrilling Stops,
 Rollinedict Cumberscopes,
+=======
+Rollinedict Cumberscopes
+>>>>>>> reset 1 commit
