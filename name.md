@@ -1,7 +1,6 @@
-The Rolling Scopes,
+The Rolling Scopes
 The Loring Cops
 The Falling Gnomes
-The Rolling Scopes
 The Pooping Dogs
 Dash S.O.'S Hopes
 The Loring Cops
