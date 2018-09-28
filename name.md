@@ -7,6 +7,7 @@ The Lolly Bombs
 The Scrolling Lols
 The Rolls Soyce
 The Growing Stores
+The Keko Cops
 The Lagging Codes
 The Thrilling Stops
 The Reckless Mops
