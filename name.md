@@ -1,3 +1,6 @@
+The Rolling Scopes,
+The Loring Cops,
+The Rolling Cops
 The Rolling Scopes
 The Loring Cops
 The Falling Gnomes
@@ -5,6 +8,7 @@ The Pooping Dogs
 Dash S.O.'S Hopes
 The Lolly Bombs
 The Scrolling Lols
+The Growing Stores
 The Rolls Soyce
 The Growing Stores
 The Lagging Codes
